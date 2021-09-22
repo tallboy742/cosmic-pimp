@@ -1,2 +1,1 @@
-# cosmic-pimp
-Pimpshit
+# fuckboy shit
